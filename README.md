@@ -1,0 +1,1 @@
+# lenterajayafarm_ariadi.adnyana
